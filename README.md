@@ -1,2 +1,3 @@
 # punto-de-venta
-no hay informacion
+no hay información
+https://mega.nz/#!1gRkWA5Q!JeK5wkaaRZwx-bORKVtaMqz-gJnnMNcpUvVPnhhexCc
